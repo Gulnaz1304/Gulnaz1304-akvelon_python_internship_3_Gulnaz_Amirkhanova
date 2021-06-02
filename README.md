@@ -1,0 +1,1 @@
+# Gulnaz1304-akvelon_python_internship_3_Gulnaz_Amirkhanova
